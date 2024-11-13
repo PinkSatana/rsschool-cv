@@ -1,1 +1,1 @@
-https://PinkSatana.github.io/rsschool-cv/
+https://PinkSatana.github.io/rsschool-cv/rsschol-cv-html
